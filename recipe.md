@@ -1,0 +1,4 @@
+Start by boiling a couple of cups of water, to that add a tablespoon of regular oil and salt to taste. Throw in the pasta and let it boil till strain and keep aside.
+In a saucepan, make a sauce by adding the butter and flour and cook for a moment. Pour in a little amount of milk at a time to avoid lumps and stir regularly. Season with salt and pepper and cook till thick. Switch off the flame, and add the cheese in.  sauce is ready.
+In a wok/pan, add the olive oil. Once hot add the garlic and chili. Saute and tear the basil leaves in, add the onions, red green and yellow bell pepper and corn. Stir it up well..
+Season with salt and pepper, add the pasta and toss it up! Pour the sauce in, and stir, stir stir. Ready to be served.
